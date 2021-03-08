@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on everything that is offerd.
 - 🤔 I’m looking for help with anything that helps me :).
 - 💬 Ask me about anything you want to, im an open person.
-- 📫 How to reach me: snap:simonpanzer discord:ŠÏMØÑ#6399
+- 📫 How to reach me: discord:ŠÏMØÑ#6399
 - 😄 Pronouns: He
 - ⚡ Fun fact: Nothing really lol.
 -->
